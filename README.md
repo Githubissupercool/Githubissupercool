@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Githubissupercool
-- 👀 I’m interested in playing ROBLOX
-- 🌱 I’m currently learning Phython and JAVA
-- 💞️ I’m looking to collaborate on my discord server
+- 🎮 I’m interested in playing ROBLOX
+- 💻 I’m currently learning Phython and JAVA
+- 🍒 I’m looking to collaborate on my discord server
 - 📫 How to reach me aaravlalan@gmail.com or my discord tag - 𝓡𝓪𝔂𝓺𝓾𝓪𝔃𝓪™ | Team Raquaza#9590
 
 <!---
